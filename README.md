@@ -9,3 +9,6 @@ Aftermath of Chennai Floods – Water related diseases REF :https://www.alfaauv.
 South Indian Floods And Cyclones 2021 - https://en.wikipedia.org/wiki/2021_South_India_floods
 Geography of chennai ref:https://en.wikipedia.org/wiki/Geography_of_Chennai
 South Indian Floods And Cyclones 2022 -https://en.wikipedia.org/wiki/2022_North_Indian_Ocean_cyclone_season
+South Indian Floods And Cyclones 2023 - 2024 - https://en.wikipedia.org/wiki/2023%E2%80%9324_South-West_Indian_Ocean_cyclone_season#:~:text=The%202023%E2%80%9324%20South%2DWest,destructive%20season%20in%20three%20years.
+Cyclone Michaung - https://en.wikipedia.org/wiki/Cyclone_Michaung
+
